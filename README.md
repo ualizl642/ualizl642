@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @ualizl642
 - 👀 I’m interested in videogames
 - 🌱 I’m currently learning informatics
-- 📫 How to reach me zariohlouterikram@gmail.com
+- 📫 How to reach me yvttzl03@gmail.com ir ig: @ttevy__
 - 😄 Pronouns: She/Her/They
 - ⚡ Fun fact: Idk
 
